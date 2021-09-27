@@ -36,7 +36,7 @@
 
 提示如果一个版本不行建议更换一个版本试试！
 
-<strong>插件下载地址：</strong>
+<strong>插件下载地址：https://www.fang1688.cn/study-code/2332.html</strong>
 
 <hr />
 
